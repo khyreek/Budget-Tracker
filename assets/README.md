@@ -1,0 +1,1 @@
+# Global/flexible & universal images
